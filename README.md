@@ -1,0 +1,1 @@
+# Vinamilk-odoo-small-clone
